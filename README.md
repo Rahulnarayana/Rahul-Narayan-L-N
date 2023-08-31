@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **rahulnarayan263@gmail.com**
 
-- ⚡ Fun fact **I still believe Anime is for real life :))**
+- ⚡ Fun fact **Death Note is banned in China. ... :))**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
